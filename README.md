@@ -6,7 +6,9 @@ I'm currently to at my schooling and yep! have couple of other talents on my oth
 ### My 'About' stats
 - 👀 I’m interested in Drawing and painting, Sports, coding and etc.
 
-- 📫 How to reach me ..., check out my website - [🌐 Homepage of Navaneet.J](https://navaneet239.github.io/HomePageOf_Navaneet.J/)
+- 📫 How to reach me ..., 
+  * check out my website - [🌐 Homepage of Navaneet.J](https://navaneet239.github.io/HomePageOf_Navaneet.J/)
+  * Email: npj2309@gmail.com
 
 That's enough for now I guess...
 
