@@ -13,6 +13,4 @@ I'm currently to at my schooling and yep! have couple of other talents on my oth
 That's enough for now I guess...
 
 for more queries...
-- [Github profile](https://github.com/navaneet239)
-- [Facebook profile](https://www.facebook.com/navaneet.jaggannathan/)
 - Email: npj2309@gmail.com
