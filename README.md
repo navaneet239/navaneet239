@@ -11,6 +11,3 @@ I'm currently to at my schooling and yep! have couple of other talents on my oth
   * Email: npj2309@gmail.com
 
 That's enough for now I guess...
-
-for more queries...
-- Email: npj2309@gmail.com
