@@ -1,5 +1,5 @@
 # 💫 Bonjour! I am Navaneet .J,
-A man with tons of imagination, innovation and ambition!<br>I have excelled at Drawing, athletics and Programming. I am a full-stack web developer who has crafted many projects including the infamous [InterrZap](https://interrzap.web.app/) and [VERRION](https://docsbrainai.com).
+A man with tons of imagination, innovation and ambition!<br>I have excelled at Drawing, athletics and Programming. I am a full-stack web developer who has crafted many projects including the infamous [InterrZap](https://interrzap.web.app/) and [VERRION](https://verrion.org).
 
 Know about me more @ [🌐 Portfolio](https://navaneetj239.web.app/).
 
